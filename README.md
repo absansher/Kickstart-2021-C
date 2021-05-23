@@ -1,4 +1,4 @@
-Google tomonidan o'tkazilgan KickStart musobaqasining B raundida tushgan Savollarning yechimi.
+Google tomonidan o'tkazilgan KickStart musobaqasining C raundida tushgan Savollarning yechimi.
 
 Savollar qiyinlik darajasi 70%-94% gacha.
 
